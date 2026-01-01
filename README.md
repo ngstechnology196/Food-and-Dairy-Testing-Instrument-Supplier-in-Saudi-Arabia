@@ -9,7 +9,7 @@ The relationship is clear: the supplier delivers the **instrument**, the instrum
 
 ### 🚀 Equip Your Lab with Industry-Leading Technology
 
-Are you looking for reliable, SFDA-compliant food and dairy testing instruments? **NGS Technology** bridges the gap between global innovation and your local laboratory requirements. Ensure your products meet the highest safety standards with our premium range of analytical solutions.
+Are you looking for reliable, SFDA-compliant food and dairy testing instruments? [**NGS Technology**](https://ngs-technology.com) bridges the gap between global innovation and your local laboratory requirements. Ensure your products meet the highest safety standards with our premium range of analytical solutions.
 
 **Get a Custom Quote or Technical Consultation:**
 
